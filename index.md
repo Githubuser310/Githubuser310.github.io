@@ -11,3 +11,5 @@ Sein Jahreseinkommen ist höher als das von hundert Polizisten und hundert Verbr
 
 ## Zitat
 > Laserkick!, Laserschelle!
+
+<img src="https://pbs.twimg.com/profile_images/959486441834369024/ICOql7U5_400x400.jpg" width="100%"/>
