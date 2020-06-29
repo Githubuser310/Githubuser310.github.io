@@ -8,3 +8,6 @@ Sein Jahreseinkommen ist höher als das von hundert Polizisten und hundert Verbr
 * Stärker als hundert Verbrecher
 * STARK WIE LASER
 * STARK, ELEGANT, LASER-ELEFANT !!!
+
+## Zitat
+Laserkick! Laserschelle!
