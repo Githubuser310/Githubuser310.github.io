@@ -10,4 +10,4 @@ Sein Jahreseinkommen ist höher als das von hundert Polizisten und hundert Verbr
 * STARK, ELEGANT, LASER-ELEFANT !!!
 
 ## Zitat
-Laserkick! Laserschelle!
+> Laserkick!, Laserschelle!
